@@ -70,8 +70,8 @@ Lily Ray has become the most cited analyst in the SEO industry for Google core u
 
 ### 3. Aleyda Solís
 - **Organization:** Orainti (independent SEO consultancy)  
-- **LinkedIn:** https://www.linkedin.com/in/aleydasolis/  
-- **YouTube:** https://www.youtube.com/@AleydaSolis (Crawling Mondays)  
+- **LinkedIn:** https://www.linkedin.com/in/aleyda/  
+- **YouTube:** https://www.youtube.com/@CrawlingMondaysbyAleyda  
 - **Newsletter:** https://www.seofomo.co  
 
 **Why she's a signal source:**  
