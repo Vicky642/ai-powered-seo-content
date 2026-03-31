@@ -49,8 +49,8 @@ Ross doesn't just write about content strategy — he runs Foundation, a content
 
 ### 2. Lily Ray
 - **Organization:** Amsive Digital  
-- **LinkedIn:** https://www.linkedin.com/in/lily-ray-44755114/  
-- **YouTube:** https://www.youtube.com/@lilyray8065  
+- **LinkedIn:** https://www.linkedin.com/in/lily-ray-44755615/  
+- **YouTube:** https://www.youtube.com/@lilyray
 - **Website:** https://lilyray.nyc  
 
 **Why she's a signal source:**  
